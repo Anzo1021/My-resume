@@ -43,7 +43,7 @@ I am currently pursuing my **Master of Computer Applications (MCA)** with a stro
 
 ## 📬 Contact
 
-- 📧 Email: your-email@example.com  
+- 📧 Email: anjaliak1806@gmail.com  
 - 💼 LinkedIn: https://www.linkedin.com/in/anjali-kumari-2963181b5  
 
 
